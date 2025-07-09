@@ -38,8 +38,7 @@
 ### 📫 Connect with Me
 
 - 🌐 [Portfolio Website](https://ujjwaldawadi.com.np)  
-- 💼 Upwork: *link coming soon*  
-- 📧 Email: *your email here*  
+- 📧 Email: ujjwaldawadi25@gmail.com 
 
 ---
 
